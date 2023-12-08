@@ -1,0 +1,2 @@
+this is my very first entrance into github and to tell the truth i am scared to death of screwing something up... github has both been fascinating me and scaring me at the same time for the past few years. Hopefully this time i will make it far enough
+through to really understand how this thing works and be comfortable enough to really put some of my work on here. I just turned 55 and coding is something that both comforts me and confounds me.
